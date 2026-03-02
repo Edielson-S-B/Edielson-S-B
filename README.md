@@ -1,9 +1,4 @@
-## Hi there 👋
-
-
-**Edielson-S-B/Edielson-S-B** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+## Olá Pessoal sou Edielson!!
 
 - 🔭 Atualmente trabalho em uma empresa textil
 - 🌱 Faço tecnico de desenvolvimentos de sistemas no Senai
