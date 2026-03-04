@@ -19,4 +19,3 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=Edielson-S-B&icon=0&color=0)](https://visitcount.itsvg.in)
 
-<div class="tenor-gif-embed" data-postid="7336250873949261946" data-share-method="host" data-aspect-ratio="1.74603" data-width="100%"><a href="https://tenor.com/view/i-don%27t-know-idk-idk-about-that-gif-7336250873949261946">I Don&#39;T Know Idk GIF</a>from <a href="https://tenor.com/search/i+don%27t+know-gifs">I Don&#39;T Know GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
